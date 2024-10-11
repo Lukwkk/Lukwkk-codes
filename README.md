@@ -1,0 +1,6 @@
+- Olá meu nome é Lucas ou @Lukwkk 
+- Sou Brasileiro
+- Pronomes: Ele/dele
+- Eu estou interessado em colocar aqui os códigos e programas feitos por mim 
+- Eu estou apendendo Java, Python, C++, Html e CSS
+- Se quiser contato comigo: lucascesarsd02@gmail.com
